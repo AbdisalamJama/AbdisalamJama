@@ -4,6 +4,6 @@
 - 💞️ I’m open to collaborating on Particle Physics projects.
 - 📫 How to reach me Email: abdijama2003@outlook.com
 - 😄 Pronouns: He/Him
-- ⚡ Fun fact: I like to Fish and go on Hikes. My "current" goal is to visit the black canyon of the gunnison national park located in Colorado, USA. A longer term goal is to do a road-trip across all American states
+- ⚡ Fun fact: I like to Fish and go on Hikes. My "current" goal is to visit the Black Canyon of the Gunnison National park located in Colorado, USA. A longer term goal is to do a road-trip across all American states
 - however, that will be hard. 
 
